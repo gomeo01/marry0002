@@ -1,4 +1,3 @@
-# marry0002
 Niger coup: Macron says France to withdraw troops and ambassador
 President Emmanuel Macron has said France will withdraw its ambassador and end all military co-operation with Niger following a coup.
 
