@@ -7,7 +7,9 @@ He added that military co-operation was "over" and French troops would leave in 
 
 The military junta which seized power in Niger in July welcomed the move.
 
-"This Sunday we celebrate a new step towards the sovereignty of Niger," the junta said, in a statement quoted by AFP news agency.
+"This Sunday we celebrate a new step towards the sovereignty of Niger," the junta said, in a statement quoted by AFP news agency.The UAE banned flaring 20 years ago, but images show it is continuing, despite the potential health consequences for its inhabitants and those in neighbouring countries.
+
+
 
 There are about 1,500 French soldiers in the landlocked West African country.
 
