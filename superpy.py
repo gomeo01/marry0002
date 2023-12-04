@@ -6,7 +6,7 @@ import fire
 import json
 from typing import Optional, Tuple, List
 from sentencepiece import SentencePieceProcessor
-
+sym
 
 @dataclass
 class ModelArgs:
